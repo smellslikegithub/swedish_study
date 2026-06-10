@@ -1,8 +1,8 @@
 # Evelinas tysta(silent) klassrun
 
-I vårt skola finns ett klassrum där man nästan alltid hör tystnad. Jag heter Evelina och jag tycker om att sitta här när jag behöver tänka(think).
+I vårt skola finns ett klassrum där man nästan(almost) alltid hör tystnad(silence). Jag heter Evelina och jag tycker om att sitta här när jag behöver tänka(think).
 
-==> tycker om att sitta = like
+==> tycker om att = like
 
 En dag under rasten valde jag att stanna kvar i klassrummet. Mina vänner gick ut och lekte, men jag kände för att vara ensam en stund.
 
