@@ -6,15 +6,15 @@ I vårt skola finns ett klassrum där man nästan(almost) alltid hör tystnad(si
 
 En dag under rasten valde jag att stanna kvar i klassrummet. Mina vänner gick ut och lekte, men jag kände för att vara ensam en stund.
 
-==> att stanna kvar = to stay (contd ...)
+==> att stanna kvar = to stay 
 
 Jag tittade ut genom fönstret och såg solen som lyste svagt genom molnen. Det var lugnt, och jag hörde bara ljudet av mina egna andetag.
 
 Plötsligt hörde jag ett svagt ljud bakom mig. Jag vände mig om och såg min lärare stå där, hon hade med sig några böcker.
 
-Hon satte sig tyst bredvid mig och frågade om jag ville höra en kort historia. Jag nickade försiktigt.
+==> vände mig om = "Turn around"
 
-Hon berättade om en gammal skola där barnen brukade lära sig genom att vara tysta och lyssna noga. Hon sa att ibland kan tystnad lära oss mer än ord.
+Hon satte sig tyst bredvid mig och frågade om jag ville höra en kort historia. Jag nickade försiktigt.
 
 Jag lyssnade och tänkte på hur ibland kan det vara skönt att inte behöva prata eller göra något aktivt.
 
@@ -70,6 +70,13 @@ Det var en enkel dag, utan bråk eller stora händelser, men för mig blev det e
 | minne | memory | Det är ett fint minne. |
 | insikt | insight/realization | Jag fick en viktig insikt. |
 
+## Make sentences
+
+**Under Rasten** (Break / During break)
+
+**Stannda Kvar**(Stay behind)
+
+**Lämndade Kvar**(Left Behind)
 
 
 
