@@ -18,3 +18,5 @@ I badrummet har vi en vitt tvättmaskin och en torktumlare.
 - använda => Using the imperative. Don't mix with infinitive använd for commands
 
 - i vs på => For enclosed space, i is preffered. For open spaces på is preffered. Notice teh usage in the above text to get the general idea.
+
+- en och ett. This is very difficult to remeber but most house hold things seem to be en word except for some odd ones. See the text above. 
