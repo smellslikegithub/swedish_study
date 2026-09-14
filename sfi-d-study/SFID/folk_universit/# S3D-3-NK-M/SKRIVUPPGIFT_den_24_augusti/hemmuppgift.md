@@ -50,6 +50,13 @@ Vi har redan lågat mat så vi ska äta när jag kommer hem.
 
 Rubrik: Jag började kursen den 3:e augusti
 
-Jag började min SFI D kurs den 7:e september istället för den 3:e augusti. Jag var lite nervös eftersom det var min första dag på kursen. Jag avslutade SFI C för tre år sedan, så jag hade glömt mycket av den svenska grammatiken. 
+Jag började min SFI D kurs den 7:e september istället för den 3:e augusti. Jag var lite nervös eftersom det var min första dag på kursen. Jag avslutade SFI C för tre år sedan, så jag hade glömt mycket av den svenska grammatiken. På mitt jobb pratar vi mest engelska så jag har sallan övat på att prata svenska. 
 
-På mitt jobb prtar vi mest engelska så jag har sallan övat på att prata svenska. 
+Innan kursen jobbar jag hela dågen. Jag hade flera möten 
+
+Efter jobbet promenerade jag till Folkuniversitetet för min första lektion. Kursen började Kl: 17:30 men jag kom ditt lite tidigare. När jag kom till kursen såg jag flera elever stod nära läraren eftersom de hade problem med att logga in på model appen. Läraren hjälpte dem och sedan hade vi ett quiz. Efter quizet hade vi en lektion om insändare och hur man skriver en insändare. Efter en timme hade vi en fikapaus och sedan fortsatte vi med lektionen.
+
+Efter lektionen pråtade jad med flera elever om SFI och vanlinga saker. 
+Jag trodde att det snart skulle börja regna så jag lämnade Folkuniversity efter lekionen och tog bussen hem.
+
+Jag hade också glömt mitt paraply  så jag var litte stressad. Jag väntade på bussen och när bussen kom steg jag på. Snart var jag hem. Det var litte sent och båda våra marn sov. Jag bytte kläder, tvättade själv, åt middag och gick och lade mig. 
